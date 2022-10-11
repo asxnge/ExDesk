@@ -5,3 +5,4 @@
 
 Telegram основателя @exdesk_Dev
 
+https://i.imgur.com/ZIg2a4g.jpg
